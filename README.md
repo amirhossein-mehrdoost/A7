@@ -1,2 +1,2 @@
 # A7
-https://amirhosseinmehrdoost.ir/
+https://amirseven.ir/
